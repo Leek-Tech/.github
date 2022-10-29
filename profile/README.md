@@ -11,7 +11,7 @@
 - 👯 I’m looking to collaborate on Tycoons 
 - 🤔 I’m looking for help with Make Money 
 - 💬 Ask me about Nothing But Poor 
-- 📫 How to reach me: admin@leekteck.icu 
+- 📫 How to reach me: admin@leektech.icu 
 - 😄 Pronouns: Leek Tech 
 - ⚡ Fun fact: A bunch of poor people 
 
